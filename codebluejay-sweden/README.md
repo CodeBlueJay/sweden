@@ -1,1 +1,0 @@
-CodeBlueJay's Copyright Sweden.
